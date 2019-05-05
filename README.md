@@ -1,1 +1,1 @@
-### you can visit this web page oby clicking on this link https://himanshuhack.github.io/survey-form/
+### you can visit this web page by clicking on this link https://himanshuhack.github.io/survey-form/
